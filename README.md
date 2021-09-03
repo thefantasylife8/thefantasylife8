@@ -4,6 +4,20 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... through discord, but i wont say what
 
+
+
+    ______
+  ╱  _____ ╲_ _
+ ╱  ╱  ___(▓)▓)▓)__
+|  |  ╱▒▒▒▒▒▒|▒▒▒▒▒▒╲
+|  | ╱▒▒▒▒▒▒╱ ╲▒▒▒▒▒▒╲
+|  |╱▒▒▒▒▒╱     ╲▒▒▒▒▒╲
+ ╲ ╱▒▒▒▒╱ _     _ ╲▒▒▒▒╲
+  ╱▒▒▒╱   ◒     ◒   ╲▒▒▒╲
+ ╱▒▒╱▒▒\       >   /▒▒╲▒▒╲
+╱▒╱ |▒▒▒\    ___  /▒▒| ╲▒╲
+     ╲▒╱ \_______/ ╲▒╱
+           |   |
 <!---
 thefantasylife8/thefantasylife8 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
