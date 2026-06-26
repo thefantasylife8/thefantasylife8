@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... drawing, writing, using rpg maker, and spending too much time on discord
 - 🌱 I’m currently learning ... how to use rpg maker
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... through discord, but i wont say what
+- 📫 How to reach me ... through discord, but i wont say what my username is
 
 
 
